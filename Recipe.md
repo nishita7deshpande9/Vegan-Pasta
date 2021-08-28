@@ -1,0 +1,9 @@
+Preheat oven to 400 degrees F (204 C) and toss tomatoes in a bit of olive oil and sea salt. Place cut side up on a parchment-lined baking sheet and bake for 20 minutes while you prepare the rest of the dish. Then set aside.
+Bring a large pot of water to a boil and cook pasta according to package instructions. When done, drain, cover and set aside.
+In the meantime, prepare the sauce. In a large skillet over medium-low heat, add 1 Tbsp (15 ml // use more, as needed, if increasing batch size) olive oil and the garlic and shallot. Add a pinch of salt and black pepper and stir frequently, cooking for 3-4 minutes until softened and fragrant.
+Stir in flour (or other thickener of choice – see notes) and mix with a whisk. Once combined, slowly whisk in the almond milk a little at a time so clumps don’t form. Then add nutritional yeast, another healthy pinch of salt and black pepper, and bring to a simmer. Continue cooking for another 4-5 minutes to thicken.
+Taste and adjust seasonings as needed, adding more salt to taste, more minced/pressed garlic for zing, or more nutritional yeast for cheesy flavor.
+Optional: You can also add 1-2 Tbsp of vegan parmesan for extra flavor at this time. Some readers also enjoyed adding 1-2 Tbsp fresh lemon juice at this time for some brightness / acidity.)
+If you want an ultra creamy sauce, transfer sauce to a blender (or use an immersion blender) to blend the sauce until creamy and smooth. Place back in pan and reduce heat to a low simmer until desired thickness is reached.
+Once the sauce is to your desired thickness, taste and adjust seasonings as needed. Then add pasta and roasted tomatoes and stir.
+Serve immediately and garnish with extra black pepper, fresh basil, and/or vegan parmesan cheese. Best when fresh, but will keep for up to 2 days in fridge.
